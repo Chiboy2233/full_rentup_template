@@ -27,6 +27,9 @@ Notice: This theme was not developed to serve as a content publishing theme. It 
 Thank you once again,
 
 The Themez Hub team
+The Themez Hub team
+The Themez Hub team
+The Themez Hub team
 
 Thank you for buying the RentUP - Real Estate HTML Template!
 
